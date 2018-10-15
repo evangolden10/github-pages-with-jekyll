@@ -1,3 +1,15 @@
-# Welcome to my blog
+# Welcome to Evan's blog
 
-I'm glad you are here. I plan to talk about Nerf Wars. Every other team is going to lose to Squad no matter what. Say goodnight
+## A project of Badin's PAT 3 Class
+
+***I AM ABSOLUTELY ECSTATIC THAT YOU ARE HERE***
+
+Things to study for tomorrow:
+* Beans
+* Theory of Relativity
+* LASAGA
+
+Teachers to buy gifts for
+1. Mr. Zimmerman
+2. Mrs. Enderle
+3. Ms. Golden
